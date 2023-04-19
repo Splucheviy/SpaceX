@@ -1,2 +1,2 @@
 # SpaceX
-https://kopypaster.github.io/SpaceX/
+https://Splucheviy.github.io/SpaceX/
